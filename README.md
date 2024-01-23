@@ -1,23 +1,41 @@
-## 91短视频
+## AvLove 收藏此地址与官方邮箱，随时找到回家的路
+
+#### 官方邮箱：
+- [x] 0898888@gmail.com  （自动回复最新地址）
 
 #### 回家地址：
-- [x] 官方Telegram群组：https://t.me/porn2008
-- [x] 官方Telegram频道：https://t.me/porn91abme 
-- [x] 官方商务联系人：https://t.me/swhz91
-#### 2023-07-20更新：
-- [x] 永久短域名地址：[https://91ab.me](https://91ab.me)
-- [x] 最新下载地址：https://8e.eimkeb.com
+- [x] https://avlove.love 
+- [x] https://avlove.co
+- [x] https://avlove.me
+- [x] https://avlove.one
+- [x] https://avlove.xyz
+- [x] https://avlove.lol
+- [x] https://avlove.online
+- [x] https://avlove.pro
+- [x] https://avlove.life
+
+#### 备用地址：
+- [x] https://avlove1.tv
+- [x] https://avlove2.tv
+- [x] https://avlove3.tv
+- [x] https://avlove4.tv
+- [x] https://avlove5.tv
+- [x] https://avlove6.tv
+- [x] https://avlove7.tv
+- [x] https://avlove8.tv
+- [x] https://avlove9.tv
+
 #### 下载地址
 
 如果微信、QQ扫码无法打开，请换其他浏览器扫码下载
 
 ![AvLove下载二维码](github.png)
 #### 应用特色：
-91短视频——首款以自拍原创短视频闻名于成人业
+AvLove-全网最全AV视频，热门吃瓜爆料视频，脱衣直播激情无限！
 - 
 - 深夜看片打飞机，全网首选APP
 - 500万部视频免费观看，高清秒播
-- 上千名91原创大神 ，海量视频每日更新爽不停
+- 上千名原创大神 ，海量视频每日更新爽不停
 - 千万狼友性福聚集地 24小时不间断更新 
 - 亚洲第一成人社区，满足你的一切性需求
 - 加入人妻俱乐部，寂寞男女同城约会 
@@ -29,9 +47,8 @@
 - 1.请切换网络 WIFI/4G/5G 或者使用 科学上网工具（VP恩）
 - 2.请拷贝完整地址到浏览器访问， 有前缀 https://
 - 3.更换浏览器为Chrome/UC浏览器，不要用百度浏览器。
-- 4.以上方法都不行请截图发送给群管理反馈～
-- 5.下载蚂蚁加速器：(https://ant.app004.net/c-5016/a-brEXR) 科学上网工具
-- 请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力～![https://91ab.me](poster.jpg)
+- 4.以上方法都不行请截图联系在线客服反馈～
+- 请把网址分享给身边有需要的人
 #### 下载地址
 
 如果微信、QQ扫码无法打开，请换其他浏览器扫码下载
